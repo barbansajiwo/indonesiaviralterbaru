@@ -1,2 +1,2 @@
-# indonesiaviralterbaru
-indonesiaviralterbaru
+[indonesiaviralterbaru](https://indonesiaviralterbaru.pages.dev)
+Fork the [repository](https://github.com/hormabalun) on GitHub.
