@@ -1,2 +1,1 @@
-# indonesiaviralterbaru
-indonesiaviralterbaru
+# [indonesiaviralterbaru](https://indonesiaviralterbaru.pages.dev)
